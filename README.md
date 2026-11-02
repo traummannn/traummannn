@@ -19,4 +19,11 @@ $\color{#69544F}{\text{That beautiful face of yours}}$
   <img src="https://github.com/traummannn/traummannn/blob/c99975c48a9567f542603c62f97f9fab77b6a375/Untitled774_20261102181828.png" width="160">
 </a>
 
+<details>
+    <summary>me</summary>
+    Mike ノ Sasu ୭ He/Him 
+    ENTP sp748 ^_^
+    [komahina rentry](https://rentry.co/koma-hina)    [ddgc rentry](https://rentry.co/double-date)
+</details>
+
 </div>
