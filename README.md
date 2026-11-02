@@ -1,7 +1,7 @@
 <div align="center">
 
 
-![views](https://komarev.com/ghpvc/?username=perfectionism&label=!&color=000000)
+![views](https://komarev.com/ghpvc/?username=perfectionism&label=!&color=69544F)
 
 
 ![](https://github.com/traummannn/traummannn/blob/2aafdd93cbd114a45947cbad6287f8aa37538c51/e2d8ecdb7f40d71f555e6ddd9fd81405.jpg)
