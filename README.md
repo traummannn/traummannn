@@ -6,7 +6,7 @@
     <summary>me</summary>
   Mike ノ Sasu    ୭    He/Him    15
   
-  ENTP sp748 ^_^ [komahina rentry](https://rentry.co/koma-hina)    [ddgc rentry](https://rentry.co/double-date)
+  ENTP sp748 ^_^ [komahina rentry](https://rentry.co/koma-hina)    [ddgc rentry](https://rentry.co/doubledate)
 </details>
 
 <details>
