@@ -21,9 +21,9 @@ $\color{#69544F}{\text{That beautiful face of yours}}$
 
 <details>
     <summary>me</summary>
-    Mike ノ Sasu ୭ He/Him 
-    ENTP sp748 ^_^
-    [komahina rentry](https://rentry.co/koma-hina)    [ddgc rentry](https://rentry.co/double-date)
+  Mike ノ Sasu ୭ He/Him 
+  
+  ENTP sp748 ^_^ [komahina rentry](https://rentry.co/koma-hina)    [ddgc rentry](https://rentry.co/double-date)
 </details>
 
 </div>
