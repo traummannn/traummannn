@@ -3,16 +3,20 @@
 
 ![views](https://komarev.com/ghpvc/?username=perfectionism&label=!&color=69544F)
 
+$\color{#69544F}{\text{That scar on your face}}$
 
-![](https://github.com/traummannn/traummannn/blob/2aafdd93cbd114a45947cbad6287f8aa37538c51/e2d8ecdb7f40d71f555e6ddd9fd81405.jpg)
+![](https://github.com/traummannn/traummannn/blob/6d40162b95ef4d61f5a3b7f86fc83a78b27f2fce/Untitled774_20261102181229.png)
+
+$\color{#69544F}{\text{That beautiful face of yours}}$
+
 
 <a href="https://facepaints.atabook.org/">
-  <img src="https://github.com/traummannn/traummannn/blob/523fdebda7e122e4b650c794b41d00d7846e26b3/Untitled759_20261012075528.png" width="160">
+  <img src="https://github.com/traummannn/traummannn/blob/235af534c845ce3ed56fc239a7b99fdc0c44e369/Untitled774_20261102181731.png" width="160">
 </a>
 
     
 <a href="https://rentry.co/last-uchiha">
-  <img src="https://github.com/traummannn/traummannn/blob/07dc5e823d8263239403ff87c3e4e27d0db830b5/Untitled759_20261012075523.png" width="160">
+  <img src="https://github.com/traummannn/traummannn/blob/c99975c48a9567f542603c62f97f9fab77b6a375/Untitled774_20261102181828.png" width="160">
 </a>
 
 </div>
